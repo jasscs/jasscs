@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm [Your Name]
+# Hi there! I'm Jasmin! You can call me, Jas!
 
 🎓 21-year-old Computer Science student at **Camarines Sur Polytechnic Colleges**
 🌐 I love building websites and bringing cute, creative ideas to life
